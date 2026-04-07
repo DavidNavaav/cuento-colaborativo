@@ -1,1 +1,1 @@
-
+Peter Parker estaba a punto de terminar la síntesis de una nueva fórmula para su telaraña en el laboratorio de la escuela, cuando su sentido arácnido vibró violentamente, alertándolo de una intrusión en el techo del edificio. El sonido de garras mecánicas rasgando el concreto resonó justo arriba, obligándolo a soltar el tubo de ensayo antes de que el cristal del tragaluz cediera bajo un peso desconocido.
